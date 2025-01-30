@@ -1,6 +1,7 @@
 # Ampam Estella Abo
 
-## Professional Summary Am a Passionate and tech-savvy individual with a strong interest in technology. A dedicated learner with a solid educational foundation and a keen enthusiasm for emerging tech trends. Eager to apply knowledge and skills in a dynamic environment to contribute to innovative solutions. 
+## Professional Summary 
+Hey There Am call AMPAM ESTELLA ABO am Passionate and tech-savvy individual with a strong interest in technology. A dedicated learner with a solid educational foundation and a keen enthusiasm for emerging tech trends. Eager to apply knowledge and skills in a dynamic environment to contribute to innovative solutions. 
 
 ## Education 
 **Government Bilingual High School (GBHS), Tiko** 
