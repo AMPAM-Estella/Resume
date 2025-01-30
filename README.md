@@ -5,7 +5,8 @@ Hey There Am call AMPAM ESTELLA ABO am Passionate and tech-savvy individual with
 
 ## Education 
 **Government Bilingual High School (GBHS), Tiko** 
-- **Advanced Level (A/L):** 2020 - **Ordinary Level (O/L):** 2018 
+- **Advanced Level (A/L):** 2020
+- **Ordinary Level (O/L):** 2018 
 - **University Of Buea:** 2020/2023
 
 ## Skills & Competencies 
