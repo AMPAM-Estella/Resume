@@ -26,5 +26,5 @@ Hey There Am call AMPAM ESTELLA ABO am Passionate and tech-savvy individual with
 - Emerging Technologies 
 
 ## Contact Information 
-Email: [estellaabo@gmail.com]
-Phone Number:+237651742492
+- Email: [estellaabo@gmail.com]
+- Phone Number:+237651742492
